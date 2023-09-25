@@ -2,5 +2,5 @@
   
 - 🌱 I’m currently learning data science
 - 
-- 📫 How to reach me adarshbalan.aabb@gmail.com----+919072457606
+- 📫 to reach me adarshbalan.aabb@gmail.com----+919072457606
 
